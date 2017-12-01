@@ -22,3 +22,8 @@ Status: No evidence provided that Adam did in fact do this.
 # Teechan Scaling Claims
 
 TODO! Quite a bit of work to document and explan this one...
+
+
+# Dragons Den Lies
+http://archive.is/zNBLj
+Claims troll army exists, sock puppets, etc...  Zero evidence other than screen shot that shows commentary on a livestream on Whalepool.  Claims real people who have confirmed identities (but are anonymous/pseudonymous) are sock puppets (no evidence, and in fact counter-evidence from multiple people who have met such people IRL).

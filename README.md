@@ -6,7 +6,7 @@ ill-advised opinions.  So him claiming Bitcoin will crash due to selfish mining
 is an opinion. Don't forget to archive any relevant websites with the [Internet
 Archive Wayback Machine](https://web.archive.org) and [archive.is](https://archive.is).
 
-Hopefully this will result in retractions and/or rebuttles and this repo will
+Hopefully this will result in retractions and/or rebuttals and this repo will
 stay empty, but we'll see...
 
 

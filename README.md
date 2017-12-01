@@ -12,4 +12,5 @@ we'll see...
 # Claiming that Adam Back Pushed Bitcoin Gold
 
 ![](twitter.com/el33th4xor/status/935928919391440896/screenshot.png)
+
 https://twitter.com/el33th4xor/status/935928919391440896

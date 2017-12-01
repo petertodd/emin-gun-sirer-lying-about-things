@@ -16,3 +16,8 @@ we'll see...
 https://twitter.com/el33th4xor/status/935928919391440896
 
 Status: No evidence provided that Adam did in fact do this.
+
+
+# Teechan Scaling Claims
+
+TODO! Quite a bit of work to document and explan this one...

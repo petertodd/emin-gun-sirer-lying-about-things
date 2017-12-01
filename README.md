@@ -5,8 +5,8 @@ possible definition, e.g. clear lies (including lying by omission), not simply
 ill-advised opinions.  So him claiming Bitcoin will crash due to selfish mining
 is an opinion.
 
-Hopefully this will result in retractions and this repo will stay empty, but
-we'll see...
+Hopefully this will result in retractions and/or rebuttles and this repo will
+stay empty, but we'll see...
 
 
 # Claiming that Adam Back Pushed Bitcoin Gold

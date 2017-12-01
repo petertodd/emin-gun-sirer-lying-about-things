@@ -14,3 +14,5 @@ we'll see...
 ![](twitter.com/el33th4xor/status/935928919391440896/screenshot.png)
 
 https://twitter.com/el33th4xor/status/935928919391440896
+
+Status: No evidence provided that Adam did in fact do this.

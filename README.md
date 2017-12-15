@@ -18,6 +18,16 @@ https://twitter.com/el33th4xor/status/935928919391440896
 
 Status: No evidence provided that Adam did in fact do this.
 
+# Claiming that Lightning was Billed as a Panacea
+
+https://twitter.com/el33th4xor/status/941384863470575617
+
+Status: Confirmed False.
+
+Lightning Labs CEO Elizabeth Stark has made it clear it is not a panacea.
+
+https://twitter.com/starkness/status/867455192547155970
+
 
 # Teechan Scaling Claims
 

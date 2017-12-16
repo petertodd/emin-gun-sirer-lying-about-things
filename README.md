@@ -18,6 +18,12 @@ https://twitter.com/el33th4xor/status/935928919391440896
 
 Status: No evidence provided that Adam did in fact do this.
 
+# Unsubtantiated Sock Puppet Claims
+
+https://twitter.com/el33th4xor/status/941909627008094208
+
+Status: Zero evidence provided that any of the people he blocked are sock puppets, or are hired by any company.
+
 
 # Teechan Scaling Claims
 
